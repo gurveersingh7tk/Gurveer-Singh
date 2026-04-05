@@ -1,2 +1,2 @@
-# Gurveer-Singh
-Gurveer Singh 
+Gurveer Singh
+Maavi Jatt
